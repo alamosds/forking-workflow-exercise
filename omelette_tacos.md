@@ -1,2 +1,2 @@
 *2 eggs
-*1 tsp pepper
+*2 tsp pepper
